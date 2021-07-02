@@ -1,7 +1,3 @@
-Imma keep it a 100 with you chief, I do not care 
-
-however:
-
 Once upon a time there was a lovely
 princess. But she had an enchantment
 upon her of a fearful sort which could
